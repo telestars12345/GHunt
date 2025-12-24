@@ -1,4 +1,4 @@
-![](assets/long_banner.png)
+![117788463925870659413](assets/long_banner.png)
 
 <br>
 
